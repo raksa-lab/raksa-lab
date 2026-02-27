@@ -130,9 +130,9 @@
 
 ## 🌐 Connect With Me
 
-* 📧 Email: [your-email@gmail.com](mailto:your-email@gmail.com)
-* 💬 Telegram: (your link)
-* 💼 LinkedIn: (your link)
+* 📧 Email: novraksa204@gmail.com
+* 💬 Telegram: @Novraksa204
+* 💼 LinkedIn: Nov Raksa
 
 ---
 
